@@ -1,4 +1,4 @@
-<a href="https://ibb.co/pQNpmwN"><img src="https://i.ibb.co/bvp4cnt/IMG-20240523-164720.jpg" alt="Maria-Md" border="0"></a>
+<a href="https://ibb.co/pQNpmwN"><img src="https://i.ibb.co/hCzGTxR/IMG-20240523-174006.jpg" alt="Maria-Md" border="0"></a>
 <h1 align="center">⭐🕷️༒ＤEVIL༒ANSH༒🕸️⭐<br></h1>
 
 <p align="center"> 
