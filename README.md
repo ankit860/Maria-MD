@@ -1,8 +1,8 @@
 <a href="https://ibb.co/pQNpmwN"><img src="https://i.ibb.co/bvp4cnt/IMG-20240523-164720.jpg" alt="Maria-Md" border="0"></a>
-<h1 align="center">⭐Maria-Md⭐<br></h1>
+<h1 align="center">⭐🕷️༒ＤEVIL༒ANSH༒🕸️⭐<br></h1>
 
 <p align="center"> 
-  Konochiwa Senpai, I am "Maria md " a WhatsApp bot made by Ayush to do everything that is possible on WhatsApp based on WhatsApp Multi Device(MD) Support.
+  I am "🕷️༒ＤEVIL༒ANSH༒🕸️ " a WhatsApp bot made by Ansh Singh to do everything that is possible on WhatsApp based on WhatsApp Multi Device(MD) Support.
 </p>
 
 
@@ -19,7 +19,7 @@
 4.  game menu added ✅️
 🔻More features and improvements!
 
--regards Ayush
+-regards Ansh
 ```
 </br>
 
@@ -27,23 +27,23 @@
 
 <p align="center">
 
-<a href="https://whatsapp.com/channel/0029VaImo5ZG3R3qjKOdyr1I"><img src="https://img.shields.io/badge/follow channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://wa.link/cxbhcs"><img src="https://img.shields.io/badge/follow channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 </p>
 
 <p align="left">
-  <a href="https://www.instagram.com/ayushpandeyy_023"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/>
+  <a href="https://wa.link/cxbhcs"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/>
 
 ## ✧✧Bot Support Groups
 <p align="center">
 
-<a href="https://chat.whatsapp.com/FoS7pSPtfMqBuoireK4aAJ"><img src="https://img.shields.io/badge/Join support group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://wa.link/cxbhcs"><img src="https://img.shields.io/badge/Join support group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 </p>
 
 
 
-### ✧✧SETUP Maria-Md 
+### ✧✧SETUP 🕷️༒ＤEVIL༒ANSH༒🕸️ 
 
   
 1. Fork The Repo
